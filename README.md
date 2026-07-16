@@ -1,5 +1,5 @@
 # Fix-Lag-Forever-How-to-use-Brevent-to-Maximize-Gaming-Performance-4
-🛑Warning: This method will cause your phone to heat up!.
+🛑Warning: This is best suited for Android 11 to 13 only. It is no longer suitable for the latest Android versions!
 
 The commands are below⬇️
 
